@@ -6,4 +6,4 @@ Besonders rund um Khao Lak gibt es viele Möglichkeiten für Schnorcheltouren, N
 
 Mehr Informationen über deutschsprachige Ausflüge:
 
-[Khao Lak Ausflüge](https://www.khao-lak-ausfluege.de)
+[Khao Lak Ausflüge](https://khao-lak-ausfluege.de)
